@@ -1,1 +1,1 @@
-# No-cooldown-start-off-
+https://pastebin.com/raw/FZLfat1G
